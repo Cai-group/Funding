@@ -6,7 +6,7 @@ Funding opportunities for students and postdocs within and beyond UF
 | Deadline  | Founder | Link and details |
 | ------------- | ------------- | ------------- |
 | Feb 2  | UF CLAS University Scholars Program  | [link](https://clas.ufl.edu/undergraduate/clas-university-scholars/) The CLAS Scholars student stipend will be $1,750, disbursed in two installments ($750 in September and $1,000 in January). Research must occur during the fall and spring semesters of the academic year following acceptance of the award. |
-| Content Cell  | Content Cell  |
+| March 31  | UF Research Tutorials Abroad  | [link](https://nam10.safelinks.protection.outlook.com/?url=https%3A%2F%2Fufl.us13.list-manage.com%2Ftrack%2Fclick%3Fu%3D9a6a802dfde66f70f41b5f8b0%26id%3Dfebf21672a%26e%3Daf2b84c259&data=05%7C02%7Ccail%40ufl.edu%7Ca8b39e7e7b174e0336e708dd55afaab3%7C0d4da0f84a314d76ace60a62331e1b84%7C0%7C0%7C638760935176888529%7CUnknown%7CTWFpbGZsb3d8eyJFbXB0eU1hcGkiOnRydWUsIlYiOiIwLjAuMDAwMCIsIlAiOiJXaW4zMiIsIkFOIjoiTWFpbCIsIldUIjoyfQ%3D%3D%7C0%7C%7C%7C&sdata=IJjpX6DyUSziDlYuEQPGbaZNWkoiYg3dbd4aoFirnts%3D&reserved=0) $6,000 for REU in Africa, Europe, Latin America, Japan, South Korea|
 
 ## Graduate
 | Deadline  | Founder | Link and details |
