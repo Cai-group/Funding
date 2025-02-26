@@ -18,3 +18,4 @@ https://funding.humanities.ufl.edu/uf-internal-undergraduate-funding/
 | Feb 28  | SSB GSRA  | [link](https://www.systbio.org/graduate-student-research-awards.html#:~:text=The%20Society%20of%20Systematic%20Biologists,field%20collection%20sites%20or%20museums) $1000 - $3000 and can be used up to the end of the awardee's studies. |
 | Jan to Feb  | GCA  | [link](https://www.gcamerica.org/scholarships/apply) $5000-$10000 for plant-related studies. |
 | April to Jun  | National Geographic explorer  | [link](https://www.nationalgeographic.org/society/grants-and-investments/) Multi-year research and travel grant|
+| Mar 18 | CLAS graduate student travel award | Nomination-based; $400+$250 |
