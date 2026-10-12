@@ -9,6 +9,7 @@ Funding opportunities for students and postdocs within and beyond UF
 | April to Jun  | National Geographic explorer  | [link](https://www.nationalgeographic.org/society/grants-and-investments/) Multi-year research and travel grant|
 | Mar 18 | CLAS graduate student travel award | Nomination-based; $400+$250 |
 | Early November | Smithsonian ForestGEO | Up to 15k https://forestgeo.si.edu/training-and-fellowships/awards-program |
+| Mid November | Lewis and Clark Fund for Exploration and Field Research| $5000 https://www.amphilsoc.org/grants/lewis-and-clark-fund-exploration-and-field-research |
 
 ## Postdoc
 | Deadline  | Founder | Link and details |
